@@ -1,2 +1,4 @@
 # hello-wordl
-for Tutoring
+Hi SEONG HYEOK
+
+SEONG HYEOK is totally genius.
